@@ -1,0 +1,1 @@
+# ALMARIShoppings-QR
